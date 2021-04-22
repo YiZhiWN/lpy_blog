@@ -1,0 +1,1 @@
+write my questions and thoughts
